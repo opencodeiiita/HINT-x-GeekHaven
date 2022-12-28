@@ -7,6 +7,7 @@
 </br>
 
 Through this repository, you will be able to revamp and redesign official website of HINT'23.
+Just get you guys a bit excited... The Top performer will get a direct chance to be a part of the HINT team.
 
 </br>
 
